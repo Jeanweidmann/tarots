@@ -1,0 +1,1 @@
+Je suis Jean Weidmann, expert en gestion des talents et praticien du Tarot. Avec plus de 25 ans d’expérience en Ressources Humaines et une passion pour le travail sur le ressenti et l’intuition, je vous accompagne dans vos défis professionnels et personnels.
